@@ -2,7 +2,7 @@
 - 👀 I’m interested in CyberSecurity
 - 🌱 I’m currently learning Offensive Cyber Security
 - 💞️ I’m looking to collaborate on Cyber Security Projects.
-- 📫 How to reach me businesswiththecrookedman@gmail.com
+- 📫 How to reach me theuglyhaxor@bugcrowdninja.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: There is no fun fact.
 
